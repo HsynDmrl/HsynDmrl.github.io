@@ -1,1 +1,0 @@
-# HsynDmrl.github.io
